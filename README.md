@@ -3,7 +3,7 @@
 ## My Resources 
 * ✏️Telegram: [@shoei1944](https://t.me/shoei1944)
 * 📰Site: [shoeii.ru](https://shoeii.ru) 
-* 📬Email: [to@shoei.fun](mailto:to@shoei.fun) 
+* 📬Email: [to@shoei.fun](mailto:me@shoeii.ru) 
 ![coffee](https://img.shields.io/badge/buy%20me-beer-green)
 
 
