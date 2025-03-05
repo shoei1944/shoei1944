@@ -2,8 +2,8 @@
 
 ## My Resources 
 * ✏️Telegram: [@shoei1944](https://t.me/shoei1944)
-* 📰Site: [shoeii.ru](https://sakura.wjg.jp) 
-* 📬Email: [to@shoei.fun](mailto:reimu@kudere.ru) 
+* 📰Site: [sakura.wjg.jp](https://sakura.wjg.jp) 
+* 📬Email: [reimu@kudere.ru](mailto:reimu@kudere.ru) 
 ![coffee](https://img.shields.io/badge/buy%20me-beer-green)
 
 
