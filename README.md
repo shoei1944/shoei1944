@@ -1,4 +1,4 @@
-![avatar](https://shoeii.ru/wp-content/uploads/2023/05/cropped-IMG_20230523_140822_117.jpg)
+![avatar](https://sakura.wjg.jp/static/avatar.jpg)
 
 ## My Resources 
 * ✏️Telegram: [@shoei1944](https://t.me/shoei1944)
